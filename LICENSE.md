@@ -1,4 +1,4 @@
-#  
+#  hidden Scripts for baddies is the best baddies Script, featuring esp and custom skins. Safe and powerful for all your needs.
 
 
 
